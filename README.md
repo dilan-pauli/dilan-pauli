@@ -4,7 +4,7 @@
 
 ⚐ Based in Saskatoon, SK, Canada
 
-ϟ Currently working for Lifeworks
+ϟ Currently working for Telus Health
 
 
 
